@@ -1,0 +1,1 @@
+# pengolahan-citra-pertemuan-11
